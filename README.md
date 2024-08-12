@@ -11,15 +11,12 @@ Westworld，中文名字叫西部世界，简单来说，它是一款能够让�
 
 它可以用来进行科学上网，或者进行外服游戏加速，并且还能解锁Netflix等流媒体视频网站，并且提供稳定、安全的网络连接。[免费电脑梯子](https://www.game735.com/thread-367600-1-1.html)，顾名思义，是完全免费的，无需额外购买或付费！
 
-![Picture4.png](https://s2.loli.net/2023/09/18/dNFbcWQfSAHxzqs.png)
 
 ## 2.为什么选择Westworld免费电脑梯子？
 
 实用便捷：[Westworld免费电脑梯子](https://github.com/yourkind/zhsf/)提供高速网络连接，让您无需等待即可畅游各类网站和应用。轻松畅享高清视频、流畅下载、跨区域游戏等一系列服务，丰富您的网络体验。
 
 绕过封锁：Westworld可以帮助你免费畅爽访问Google、Facebook、YouTube等被封锁的网站，体验自由上网的乐趣。
-
-![Picture5.png](https://s2.loli.net/2023/09/18/bVOYgCJuG27MKxr.png)
 
 完全免费：Westworld为用户提供纯净的、免费的网络代理服务，无需额外购买或付费。
 
